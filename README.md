@@ -1,5 +1,5 @@
 # MISA
-### Hello Welcome To Management Information Sysems Association 
+### Hello Welcome To Management Information Systems Association 
 
 We like to thank you for taking an intrust in are club are 
 main focus here is to help you build strong relationships that
